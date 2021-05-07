@@ -1,4 +1,3 @@
 # New-world
-Yaaaaaaa
-圣诞节按时看书
+Yaaaa
 asndlajsn/ldk/na螺丝孔
